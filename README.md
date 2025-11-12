@@ -1,1 +1,0 @@
-# Kigahub-Free-jp-kiga
